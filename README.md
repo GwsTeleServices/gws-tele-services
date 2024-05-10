@@ -1,11 +1,11 @@
 # gws-tele-services
-"INTERNET SERVICE PROVIDER IN INDIA" <GWS Tele Services>- Best Internet Service Provider in BHARAT With a mission to provide best service in the BHARAT, GWS TELE SERIVCES is founded for you all, We are the ideal fusion of drive, imagination, commitment, and aspiration to become the best internet service provider.
+"INTERNET SERVICE PROVIDER IN INDIA" GWS Tele Services- Best Internet Service Provider in BHARAT With a mission to provide best service in the BHARAT, GWS TELE SERIVCES is founded for you all, We are the ideal fusion of drive, imagination, commitment, and aspiration to become the best internet service provider.
 
 
-Internet at its finest with <GWSTeleServices>
+Internet at its finest with GWS Tele Services
 
 
-In a competitive market like India, <GreenWebSolution> stands out as a leader in delivering top-notch Tele Service that prioritizes quality, reliability, and customer satisfaction. With its unparalleled network coverage, superior call quality, customer-centric approach, and innovative solutions. As India's digital ecosystem continues to expand, GWS is well-positioned to lead the charge towards a connected and advanced communication future.
+In a competitive market like India, Green Web Solution stands out as a leader in delivering top-notch Tele Service that prioritizes quality, reliability, and customer satisfaction. With its unparalleled network coverage, superior call quality, customer-centric approach, and innovative solutions. As India's digital ecosystem continues to expand, GWS is well-positioned to lead the charge towards a connected and advanced communication future.
 
 
 Seamless Connectivity Anytime, Anywhere
